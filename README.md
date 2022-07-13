@@ -1,1 +1,0 @@
-# bklogo2sj0rmd
